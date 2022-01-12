@@ -372,6 +372,39 @@
 
 段王爷说：「从来就没有什么视频是只能新人看或者只能老人看。不过有些视频的确很适合新人去分析，来学会一些简单的结构。甚至学会一些表演风格。我给你推荐几个吧。」
 
+① [为什么亚洲人聪明 KT katara](https://m.bilibili.com/video/av2543098?from=search\&seid=9979146567040045091)
+
+② 英国人吐槽：长得像中国人是一种怎样的体验
+
+[https://m.bilibili.com/video/av9498171?spm\_id\_from=333.338.\_\_bofqi.29](https://m.bilibili.com/video/av9498171?spm\_id\_from=333.338.\_\_bofqi.29)
+
+③ 【爆笑单口】 - 关于非洲人的刻板印象【中文字幕】
+
+[https://m.bilibili.com/video/av4222317?spm\_id\_from=333.338.\_\_bofqi.29](https://m.bilibili.com/video/av4222317?spm\_id\_from=333.338.\_\_bofqi.29)
+
+④ Jimmy O Yan- 我的父母是奇葩
+
+
+
+⑤ 女生如何掌控你 - KT Tatara
+
+[https://m.bilibili.com/video/av2543313?spm\_id\_from=333.338.\_\_bofqi.11](https://m.bilibili.com/video/av2543313?spm\_id\_from=333.338.\_\_bofqi.11)\
+⑥ 男孩为什么喜欢笨女孩？
+
+[https://m.bilibili.com/video/av2543166?spm\_id\_from=333.338.\_\_bofqi.12](https://m.bilibili.com/video/av2543166?spm\_id\_from=333.338.\_\_bofqi.12)
+
+⑦ Jerry Seinfeld 专场
+
+[https://m.bilibili.com/video/av18995451?from=search\&seid=17960554139451131498](https://m.bilibili.com/video/av18995451?from=search\&seid=17960554139451131498)
+
+⑧ Chris Rock 专场
+
+[https://m.bilibili.com/video/av11560498?from=search\&seid=8809887213236364155](https://m.bilibili.com/video/av11560498?from=search\&seid=8809887213236364155)
+
+⑨ Jim Gaffigan 专场
+
+[https://m.bilibili.com/video/av12331086?from=search\&seid=3967723815153523811](https://m.bilibili.com/video/av12331086?from=search\&seid=3967723815153523811)
+
 
 
 「这九个视频加专场看下来，你一定能对单口喜剧有更深层次的了解。有了这些了解，明天开始，我教给你到底如何去写段子和表演 \~」
