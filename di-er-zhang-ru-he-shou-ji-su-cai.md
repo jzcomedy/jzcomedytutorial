@@ -996,7 +996,7 @@ e. 讲段子，要先讲出你的观点，这样观众就知道你接下来要�
 
 3\. 小学三年级偷学家长♛烟被发现，写了八百字的检讨书。
 
-4\. ![](file:///private/var/folders/s0/cr\_1j4hj0k30z3lyfrd3z1b00000gn/T/com.kingsoft.wpsoffice.mac/wps-isaaclocal/ksohtml/wpsAowTAU.jpg)小学偷爸爸的钱买玩具被妈妈发现，教育一顿之后，钱被妈妈没收。
+4\. 小学偷爸爸的钱买玩具被妈妈发现，教育一顿之后，钱被妈妈没收。
 
 5\. 因为姥姥是小学老师，姥爷是中学老师，所以在学校一举一动家人都知道。
 
